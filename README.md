@@ -1,1 +1,0 @@
-# wanderkerala.github.io
